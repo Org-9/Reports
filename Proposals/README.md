@@ -1,1 +1,1 @@
-[Tangible Fictional Entities (TFE) as Company Goal.pdf](Tangible%20Fictional%20Entities%20(TFE)%20as%20Company%20Goal.pdf)
+- [Tangible Fictional Entities (TFE) as Company Goal](Tangible%20Fictional%20Entities%20(TFE)%20as%20Company%20Goal.md) [Download PDF](Tangible%20Fictional%20Entities%20(TFE)%20as%20Company%20Goal.pdf)
